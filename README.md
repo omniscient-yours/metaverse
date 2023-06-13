@@ -1,2 +1,2 @@
 # metaverse
-Metaverse for Everyone
+Metaverse for Anyone and Everyone
